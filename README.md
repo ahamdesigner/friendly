@@ -1,3 +1,3 @@
 # friendly
-friendly I am 
-Worki at DNA BANKING
+friendly I
+Work at DNA
